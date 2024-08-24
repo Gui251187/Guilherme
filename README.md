@@ -19,5 +19,3 @@ I'm currently working in a hotel, but in the meantime doing a boot camp in Busin
 😄 Pronouns: He/He/Him
 
 ⚡ Fun fact: I moved on my own to the USA with U$ 2.700,00 in my pocket. As a huge dream that's transforming my journey every day.
-
-TripleTen_Projects/README.md at main.
