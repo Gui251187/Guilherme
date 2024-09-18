@@ -4,7 +4,7 @@ https://www.linkedin.com/in/guilherme-lopes-nogueira/
 
 guilherme251187@gmail.com
 
-Resume: https://drive.google.com/file/d/12QNfW7HA4eIxX_tjZ4lensvZOazwjz-O/view?usp=sharing
+Resume: https://drive.google.com/file/d/1-YLgEYRAEaW0UetEoIcdDJztaoTYmqF_/view?usp=sharing
 
 Cover Letter: https://drive.google.com/file/d/17EiqHm1tPld-HVjficQTacEw6gYeZiUS/view?usp=sharing
 
